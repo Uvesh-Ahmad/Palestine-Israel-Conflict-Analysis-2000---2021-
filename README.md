@@ -2,7 +2,8 @@
 
 
 
-🌟 Decoding the Israeli-Palestinian Conflict through Data Analysis: My Data-Driven Journey! 🌟 ( 2000 - 2021)
+🌟 Decoding the Israeli-Palestinian Conflict through Data Analysis: My Data-Driven Journey! 
+🌟 ( 2000 - 2021)
  
 
 

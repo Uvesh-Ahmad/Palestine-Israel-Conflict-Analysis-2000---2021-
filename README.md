@@ -1,4 +1,4 @@
-<h2>Project</h3>
+<h1>Project</h1>
 
 # Palestine-Israel-Conflict-Analysis (2000 - 2021)
 
